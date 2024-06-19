@@ -4,7 +4,8 @@
 ##### 💼 I’m currently working at [Coinstore](https://www.coinstore.com)
 ##### 👀 I’m interested in Blockchain, Crypto, Web3
 ##### 👩🏻‍💻 I’m specialized in Listing, Marketing, IEO, Launchpad, Event Management, KOLs, Social Media Campaigns
-##### ⚯ I’m looking to collaborate as Business Development or Growth Partnership
+##### ⚯ I’m looking to collaborate as Business Development, Growth Partnership, Advisory
+##### 🗣️ I speak English, Chinese and Indonesian
 ##### 📫 Reach me at julie.otreylio@gmail.com
 
 ## Education:
