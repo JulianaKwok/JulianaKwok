@@ -11,7 +11,7 @@
 #### [Universitas Tarumanagara](https://untar.ac.id/) | Bachelor of Economics | 2001-2005
 
 ## Work Experience:
-### [Coinstore](https://www.coinstore.com) | Senior Listing BD | Oct 2022 - now
+#### [Coinstore](https://www.coinstore.com) | Senior Listing BD | Oct 2022 - now
 ###### 📌 Achievement 200% - 300% every quarter from target. Listed more than 25 projects.
 ###### 📌 Specialized in Listing, IEO/Launchpad, Co-Marketing, Token Sale, Event Management, Sponsorship, Fund Raising.
 ###### 📌 Research, identify and onboard new potential project to listing in Coinstore.
