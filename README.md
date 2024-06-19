@@ -12,7 +12,7 @@
 
 ## Work Experience:
 ### [Coinstore](https://www.coinstore.com) | Senior Listing BD | Oct 2022 - now
-###### 📌 Achievement 200% - 300% every quarter from target. Listed more than 25 projects.
+####### 📌 Achievement 200% - 300% every quarter from target. Listed more than 25 projects.
 ###### 📌 Specialized in Listing, IEO/Launchpad, Co-Marketing, Token Sale, Event Management, Sponsorship, Fund Raising.
 ###### 📌 Research, identify and onboard new potential project to listing in Coinstore.
 ###### 📌 Crafting proposal agreement and negotiate key deals from end-to-end in alignment with client's business strategy.
