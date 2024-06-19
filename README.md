@@ -11,7 +11,17 @@
 #### [Universitas Tarumanagara](https://untar.ac.id/) | Bachelor of Economics | 2001-2005
 
 ## Work Experience:
-#### Senior BD - Coinstore
+#### Senior Business Development Manager - Listing, Coinstore (Oct 2022 - now)
+Focusing on Token listing, IEO/Launchpad, Co-Marketing, Token Sale, Event Management, Sponsorship, Fund Raising.
+Achieve 200% - 300% in every quarter from revenue target.
+Listed more than 25 projects
+Generate new asset leads by identifying value-capturing asset opportunities. Be fully immersed in token project circles,
+ventures funds, and with liquidity providers
+Be the front-facing client services manager to our existing token partners
+Negotiate and close on commercial terms of crypto projects
+Help shepherd crypto projects through the process of our listings
+
+
 <!---
 JulianaKwok/JulianaKwok is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
