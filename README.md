@@ -1,8 +1,10 @@
-- 👋 Hi, I’m @JulianaKwok
-- 👀 I’m interested in Blockchain, Crypto, Defi, Web3, Fintech and Startup
-- 🌱 I’m currently learning Digital Marketing and blockchain
-- 💞️ I’m looking to collaborate on any blockchain projects
-- 📫 Reach me at julie.otreylio@gmail.com
+👋 Hi there, I’m Juliana Kwok
+
+About Me:
+· 👀 I’m interested in Blockchain, Crypto, Web3
+· 📚 I’m currently learning about RWA, DePIN, DeFi and GameFi
+· ⚯ I’m looking to collaborate on with any RWA, DePin, DeFi, GameFi, Protocol projects
+· 📫 Reach me at julie.otreylio@gmail.com
 
 <!---
 JulianaKwok/JulianaKwok is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
