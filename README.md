@@ -1,4 +1,4 @@
-### Hi there, I’m Juliana Kwok 👋
+### Hello, I’m Juliana Kwok 👋
 
 ## About Me:
 ##### 💼 I’m currently working at [Coinstore](https://www.coinstore.com)
