@@ -12,14 +12,12 @@
 
 ## Work Experience:
 #### Senior Business Development Manager - Listing, Coinstore (Oct 2022 - now)
-Focusing on Token listing, IEO/Launchpad, Co-Marketing, Token Sale, Event Management, Sponsorship, Fund Raising.
-Achieve 200% - 300% in every quarter from revenue target.
-Listed more than 25 projects
-Generate new asset leads by identifying value-capturing asset opportunities. Be fully immersed in token project circles,
-ventures funds, and with liquidity providers
-Be the front-facing client services manager to our existing token partners
-Negotiate and close on commercial terms of crypto projects
-Help shepherd crypto projects through the process of our listings
+##### Specialized in Listing, IEO/Launchpad, Co-Marketing, Token Sale, Event Management, Sponsorship, Fund Raising.
+##### Achievement 200% - 300% in every quarter from revenue target. Listed more thaan 25 projects.
+##### Generate new asset leads by identifying value-capturing asset opportunities. Be fully immersed in token project circles, ventures funds, and with liquidity providers
+##### Be the front-facing client services manager to our existing token partners
+##### Negotiate and close on commercial terms of crypto projects
+##### Help shepherd crypto projects through the process of our listings
 
 
 <!---
