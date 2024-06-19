@@ -46,7 +46,7 @@
 ###### 📌 Demonstrating functional competence and deep industry knowledge.
 
 #### [Winngie Tech](https://www.winngie.com) | Country Manager | Mar 2020 - Apr 2022
-Winngie is a P2P social platform that can help people to transfer money and exchange money easily with no hidden fees,
+###### Winngie is a P2P social platform that can help people to transfer money and exchange money easily with no hidden fees,
 no commissions, and no differences between the currency exchange. As Country Manager, I provide business advisory
 and develop Winngie for the Indonesian market and focusing on the South East Asian market.
 
@@ -78,8 +78,7 @@ compliance with Citi policies.
 ###### 📌 Responsible for market advisory such as daily concall, weekly & monthly market update.
 ###### 📌 Responsible for investment & market strategy
 ###### 📌 Responsible for sales coaching & sales process.
-###### 📌 Conduct new & existing investment product training, Unit Trust System (UTS), Customer Investment Profiling & Solution
-(CIPS) and Finantix system.
+###### 📌 Conduct new & existing investment product training, Unit Trust System (UTS), Customer Investment Profiling & Solution (CIPS) and Finantix system.
 ###### 📌 Being a respective speaker for some micro investment event.
 ###### 📌 Maintain good relationship with Fund Managers, Branches, Clients and Other Units in the bank.
 
