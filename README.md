@@ -46,9 +46,7 @@
 ###### 📌 Demonstrating functional competence and deep industry knowledge.
 
 #### [Winngie Tech](https://www.winngie.com) | Country Manager | Mar 2020 - Apr 2022
-###### Winngie is a P2P social platform that can help people to transfer money and exchange money easily with no hidden fees,
-no commissions, and no differences between the currency exchange. As Country Manager, I provide business advisory
-and develop Winngie for the Indonesian market and focusing on the South East Asian market.
+###### Winngie is a P2P social platform that can help people to transfer money and exchange money easily with no hidden fees, no commissions, and no differences between the currency exchange. As Country Manager, I provide business advisory and develop Winngie for the Indonesian market and focusing on the South East Asian market.
 
 ###### 📌 Increased user growth in Indonesia and across South East Asia.
 ###### 📌 Increased social media following through Instagram, Twitter. Facebook, LinkedIn.
