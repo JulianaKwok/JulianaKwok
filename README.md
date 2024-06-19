@@ -34,7 +34,7 @@
 ###### 📌 Provided business support to KOLs regarding MoonXBT products and encouraged them to start attracting new users to Bitget to increase the trading volume
 ###### 📌 Create campaigns and execute marketing program to support KOL
 ###### 📌 Negotiating with KOLs and budget management
-##### 📌 Helping MoonXBT for fundraising, connect with VCs
+###### 📌 Helping MoonXBT for fundraising, connect with VCs
 
 #### Crypto Consultant and Trader Jan 2020 - now
 ###### 📌 Identifying and souring potential deals and new investment opportunities and partnerships.
@@ -56,6 +56,20 @@ and develop Winngie for the Indonesian market and focusing on the South East Asi
 ###### 📌 Collaborate with influencer to advertice products.
 ###### 📌 Communicate with regional office, report on progress, and act as the Winngie representative in Indonesia.
 ###### 📌 Created design, content writing and schedule posting on Facebook and Instagram.
+
+#### [CITIBANK](https://www.citi.com) | Head of Treasury | May 2015 - Mar 2020
+###### 📌 Responsible to meet country FX revenue targets from all channel (branch / TFX / TSU / citiphone / digital banking C-bol,
+M-bol, Internet Banking).
+###### 📌 Generating trade ideas across the G10 FX Spot.
+###### 📌 Responsible to lead team for strategy and revenue achievement.
+###### 📌 Generating idea to increase portfolio and NTP.
+###### 📌 Responsible for driving technology, e-business platforms, pricing systems.
+###### 📌 Responsible to all FX sales KPI, tactical program and ensure the end-to-end sales process and procedures are in
+compliance with Citi policies.
+###### 📌 HResponsible for CBM and RB Head presentation deck.
+###### 📌 Responsible for recruitment, training and mentoring of FX team.
+###### 📌 Supervision of risk limits, and ensuring a strong framework for conduct risk management and supervisory control.
+###### 📌 Responsible for daily morning concall and market update to branch/hub and customers.
 
 
 
