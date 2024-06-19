@@ -57,14 +57,12 @@
 ###### 📌 Created design, content writing and schedule posting on Facebook and Instagram.
 
 #### [Citibank](https://www.citi.com) | Head of Treasury | May 2015 - Mar 2020
-###### 📌 Responsible to meet country FX revenue targets from all channel (branch / TFX / TSU / citiphone / digital banking C-bol,
-M-bol, Internet Banking).
+###### 📌 Responsible to meet country FX revenue targets from all channel (branch / TFX / TSU / citiphone / digital banking C-bol, M-bol, Internet Banking).
 ###### 📌 Generating trade ideas across the G10 FX Spot.
 ###### 📌 Responsible to lead team for strategy and revenue achievement.
 ###### 📌 Generating idea to increase portfolio and NTP.
 ###### 📌 Responsible for driving technology, e-business platforms, pricing systems.
-###### 📌 Responsible to all FX sales KPI, tactical program and ensure the end-to-end sales process and procedures are in
-compliance with Citi policies.
+###### 📌 Responsible to all FX sales KPI, tactical program and ensure the end-to-end sales process and procedures are in compliance with Citi policies.
 ###### 📌 HResponsible for CBM and RB Head presentation deck.
 ###### 📌 Responsible for recruitment, training and mentoring of FX team.
 ###### 📌 Supervision of risk limits, and ensuring a strong framework for conduct risk management and supervisory control.
