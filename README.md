@@ -1,7 +1,7 @@
 ### Hi there, I’m Juliana Kwok 👋
 
 ## About Me:
-#### 💼 I’m currently working at [Coinstore](https://www.coinstore.com)
+##### 💼 I’m currently working at [Coinstore](https://www.coinstore.com)
 #### 👀 I’m interested in Blockchain, Crypto, Web3
 #### 👩🏻‍💻 I’m specialized in Listing, Marketing, Initial Exchange Offerings (IEO), Launchpad, Event Organization, Wallets, Payments, KOLs, and User Acquisition.
  ⚯ I’m looking to collaborate as Business Development or Growth Partnership
