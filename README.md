@@ -57,7 +57,7 @@ and develop Winngie for the Indonesian market and focusing on the South East Asi
 ###### 📌 Communicate with regional office, report on progress, and act as the Winngie representative in Indonesia.
 ###### 📌 Created design, content writing and schedule posting on Facebook and Instagram.
 
-#### [CITIBANK](https://www.citi.com) | Head of Treasury | May 2015 - Mar 2020
+#### [Citibank](https://www.citi.com) | Head of Treasury | May 2015 - Mar 2020
 ###### 📌 Responsible to meet country FX revenue targets from all channel (branch / TFX / TSU / citiphone / digital banking C-bol,
 M-bol, Internet Banking).
 ###### 📌 Generating trade ideas across the G10 FX Spot.
@@ -71,7 +71,16 @@ compliance with Citi policies.
 ###### 📌 Supervision of risk limits, and ensuring a strong framework for conduct risk management and supervisory control.
 ###### 📌 Responsible for daily morning concall and market update to branch/hub and customers.
 
-
+#### [Standard Chartered Bank](https://www.sc.com) | Investment Advisor | Jul 2010 - May 2015
+###### 📌 Advise & manage branches portfolio and ensure they have a healthy portfolio.
+###### 📌 Responsible to growth Investment AUM, Revenue, and NTP.
+###### 📌 Responsible for market advisory such as daily concall, weekly & monthly market update.
+###### 📌 Responsible for investment & market strategy
+###### 📌 Responsible for sales coaching & sales process.
+###### 📌 Conduct new & existing investment product training, Unit Trust System (UTS), Customer Investment Profiling & Solution
+(CIPS) and Finantix system.
+###### 📌 Being a respective speaker for some micro investment event.
+###### 📌 Maintain good relationship with Fund Managers, Branches, Clients and Other Units in the bank.
 
 
 
