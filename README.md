@@ -102,6 +102,12 @@
 ###### 📌 Successfully utilized strong sales skills to enhance customer experience and drive revenue through cross-selling various financial products such as mutual funds, bonds, foreign exchange, structured products, and insurance
 ###### 📌 Managed portfolio around IDR 300 billion
 
+#### [ABN Amro](https://www.abnamro.com) | Senior Personal Financial Consultant | Dec 2005 - Apr 2006
+###### 📌 Managed new to bank (NTB) clients to achieve priority banking targets
+
+#### [HSBC](https://www.hsbc.co.id) | Premier Marketing Office | Aug 2005 - Dec 2005
+###### 📌 Managed new to bank (NTB) clients to achieve priority banking targets
+
 <!---
 JulianaKwok/JulianaKwok is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
