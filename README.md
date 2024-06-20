@@ -13,12 +13,12 @@
 
 ## Work Experience:
 #### [Coinstore](https://www.coinstore.com) | Senior Listing BD | Oct 2022 - now
-###### 📌 Achievement 200% - 300% every quarter from target. Listed more than 25 projects.
-###### 📌 Specialized in Listing, IEO/Launchpad, Co-Marketing, Token Sale, Event Management, Sponsorship, Fund Raising.
-###### 📌 Research, identify and onboard new potential project to listing in Coinstore.
-###### 📌 Crafting proposal agreement and negotiate key deals from end-to-end in alignment with client's business strategy.
-###### 📌 Create campaign and execute marketing program to help project to scale up their business.
-###### 📌 Ensure all the process are smooth for token listing.
+###### 📌 Consistently achieved performance targets by 200%-300% every quarter. Executed over 25 successful projects.
+###### 📌 Successfully executed multiple projects related to Listing Services, IEO/Launchpad Campaigns, Co-Marketing Initiatives, Token Sales, Event Management Activities including Sponsorships.
+###### 📌 Conducted research and successfully onboarded potential projects to be listed in Coinstore.
+###### 📌 Crafted and negotiated proposal agreements and key deals from end-to-end, aligning with client's business strategy.
+###### 📌 Designed and executed strategic marketing initiatives to support the project's expansion.
+###### 📌 Streamlined and optimized token listing processes for smooth and successful operations.
 
 #### [Bitget](https://www.bitget.com) | KOL BD | Aug 2022 - Sep 2022
 ###### 📌 Research, identify and onboard new potential Key Opinion Leaders (KOL) in Crypto Communities
