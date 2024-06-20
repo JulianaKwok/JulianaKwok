@@ -81,14 +81,14 @@
 ###### 📌 Developed and nurtured productive partnerships with Fund Managers, Branches, Clients and Other Units throughout the bank
 
 #### [PT. Gilang Agung Persada](https://www.linkedin.com/company/pt.gilangagungpersada/?originalSubdomain=id) | Retail Analyst | Jul 2010 - May 2015
-###### 📌 Providing guidance and oversight to branch portfolios for optimal performance
-###### 📌 Responsible for driving growth of Investment AUM, Revenue, and NTP
-###### 📌 Provided market advisory including daily concall as well as weekly and monthly market updates
-###### 📌 Responsible for investment & market strategies
-###### 📌 Coached sales teams and optimized sales process for increased productivity
-###### 📌 Conducted investment product training for new and existing employees, including Unit Trust System (UTS), Customer Investment Profiling & Solution (CIPS), and Finantix system
-###### 📌 Respected speaker at multiple micro investment events
-###### 📌 Developed and nurtured productive partnerships with Fund Managers, Branches, Clients and Other Units throughout the bank
+###### 📌 Analyzed key metrics to identify trends and opportunities at the store, product category, department, and SKU levels
+###### 📌 Created and implemented strategic plans to enhance store sales through comprehensive analysis of product categories and departments on a weekly, monthly, and yearly basis
+###### 📌 Conducted analysis of store-specific stock to sales ratios for category and department, resulting in the development of targeted action plans to achieve sales goals and optimize inventory
+###### 📌 Planned, analyzed, and reported sales, markdowns, and margins for events, holidays, and incentive programs
+###### 📌 Delivered hindsight recaps for store and product categories
+###### 📌 Tracked and maintained sales and inventory levels according to budgetary targets
+###### 📌 Analyze the inventory risk, promotions, cost planning, and decision support.
+###### 📌 Collaborated with Sales Team and Buying Team to meet sales targets and maintain optimal inventory levels
 
 
 <!---
