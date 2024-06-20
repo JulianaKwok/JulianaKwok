@@ -39,11 +39,11 @@
 
 #### Crypto Consultant and Trader Jan 2020 - now
 ###### 📌 Identifying and souring potential deals and new investment opportunities and partnerships.
-###### 📌 Meeting, networking and building relationship with entrepreneurs and founders.
-###### 📌 Reviewing pitchdeck about new investment opportunities, and providing summary for the management team.
-###### 📌 Entrepreneur mindset and passionate about the technology sector.
-###### 📌 Developing and maintaining good working relationships with targeted clients.
-###### 📌 Demonstrating functional competence and deep industry knowledge.
+###### 📌 Developed strong professional relationships through meetings and networking events with entrepreneurs and founders.
+###### 📌 Provided management team with comprehensive summaries of pitch decks, evaluating new investment opportunities.
+###### 📌 Entrepreneurial mindset and passion for the technology sector.
+###### 📌 Established and nurtured fruitful partnerships with key clients.
+###### 📌 Showcased functional expertise and extensive industry insight.
 
 #### [Winngie Tech](https://www.winngie.com) | Country Manager | Mar 2020 - Apr 2022
 ###### Winngie is a P2P social platform that can help people to transfer money and exchange money easily with no hidden fees, no commissions, and no differences between the currency exchange. As Country Manager, I provide business advisory and develop Winngie for the Indonesian market and focusing on the South East Asian market.
