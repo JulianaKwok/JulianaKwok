@@ -90,7 +90,7 @@
 ###### 📌 Analyze the inventory risk, promotions, cost planning, and decision support.
 ###### 📌 Collaborated with Sales Team and Buying Team to meet sales targets and maintain optimal inventory levels
 
-#### [ABN Amro / RBS](https://www.abnamro.com/en/home()https://www.rbs.co.uk/) | Senior Business Development Manager | Mar 2008 - Dec 2008
+#### [ABN Amro / RBS](https://www.abnamro.com/en/home)(https://www.rbs.co.uk/) | Senior Business Development Manager | Mar 2008 - Dec 2008
 ###### 📌 Analyzed key metrics to identify trends and opportunities at the store, product category, department, and SKU levels
 ###### 📌 Created and implemented strategic plans to enhance store sales through comprehensive analysis of product categories and departments on a weekly, monthly, and yearly basis
 ###### 📌 Conducted analysis of store-specific stock to sales ratios for category and department, resulting in the development of targeted action plans to achieve sales goals and optimize inventory
