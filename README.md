@@ -80,6 +80,15 @@
 ###### 📌 Respected speaker at multiple micro investment events
 ###### 📌 Developed and nurtured productive partnerships with Fund Managers, Branches, Clients and Other Units throughout the bank
 
+#### [PT. Gilang Agung Persada](https://www.linkedin.com/company/pt.gilangagungpersada/?originalSubdomain=id) | Retail Analyst | Jul 2010 - May 2015
+###### 📌 Providing guidance and oversight to branch portfolios for optimal performance
+###### 📌 Responsible for driving growth of Investment AUM, Revenue, and NTP
+###### 📌 Provided market advisory including daily concall as well as weekly and monthly market updates
+###### 📌 Responsible for investment & market strategies
+###### 📌 Coached sales teams and optimized sales process for increased productivity
+###### 📌 Conducted investment product training for new and existing employees, including Unit Trust System (UTS), Customer Investment Profiling & Solution (CIPS), and Finantix system
+###### 📌 Respected speaker at multiple micro investment events
+###### 📌 Developed and nurtured productive partnerships with Fund Managers, Branches, Clients and Other Units throughout the bank
 
 
 <!---
